@@ -2,7 +2,7 @@
  Let's Explore !!
  No matter where you wanna go ,we make your trip safe and memorable.
  We have our services across the two telugu states.
- We have the combo services for the places like 
+ We have the combo services for the places like
  -> Araku
  -> Vizag
  -> Vijayawada
